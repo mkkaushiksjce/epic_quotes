@@ -20,4 +20,7 @@ The quotes that I found to be epic. Taken from various paths of life. I enjoyed 
 
 ![Steve Jobs on work](steve_jobs2.jpg)
 
+#### Elon Musk never give up quote
+
+![Steve Jobs never give up quote](elon_musk.jpg)
 
